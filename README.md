@@ -39,5 +39,5 @@ Seeking an entry-level **Data Analyst** opportunity where I can apply my analyti
 
 ### 📫 Connect With Me
 
-- LinkedIn: Add your LinkedIn profile here
+- LinkedIn: linkedin.com/in/nishavishwakarma234
 - GitHub: You're already here 😊
